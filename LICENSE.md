@@ -1,4 +1,4 @@
-
+rare catch and tame Scripts offers the most advanced catch and tame Script, with auto-upgrade and private server access. Perfect for dominating any
 
 
 
